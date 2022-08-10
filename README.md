@@ -1,5 +1,7 @@
 # 💫 Hi there 👋, I'm Kourosh Moradi!
-I'm an avid Smart Contract/Blockchain Software Engineer, Crypto Consultant, and founder and CEO of Believerz Group<br><br>I'm here to help the world be decentralized, always ready to learn new things , Life enthusiast <br><br>Video games and books are my things.
+I'm an avid Smart Contract/Blockchain Software Engineer,
+Crypto Consultant with 3 years of Experience,
+Founder and CEO of Believerz Group<br><br>I'm here to help the world be decentralized, always ready to learn new things , Life enthusiast <br><br>Video games and books are my things.
 
 
 ## 🌐 Socials:
